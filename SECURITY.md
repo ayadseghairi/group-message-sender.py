@@ -10,15 +10,16 @@
 
 You can report security vulnerabilities through these accounts :
 
-https://instagram.com/ayadseghairi40
+[https://www.instagram.com/ayad.seghiri](https://www.instagram.com/ayad.seghiri)
 
-https://facebook.com/ayadseghairi40
-
-https://twitter.com/ayadseghairi
-
+[https://facebook.com/ayad.seghiri
+](https://facebook.com/ayad.seghiri
+)
+[https://twitter.com/ayad.seghiri
+](https://twitter.com/ayad.seghiri
+)
 Or send a message to the following e-mail :
-ayadseghairi40@gmail.com
-
+seghiri.ayad@univ-khenchela.dz
 Security gaps will be fixed as soon as the notification is received, and we will always try to update it whenever possible.
 
 Thank you .
